@@ -1,8 +1,6 @@
-# Yuineko-Privacy-Polic
+# TERMS OF SERVICE & PRIVACY POLICY
 
 ---
-
-• TERMS OF SERVICE & PRIVACY POLICY
 
 • If u won't follow Our Terms Of service Or Privacy Policy May Lead Blacklist.
 
