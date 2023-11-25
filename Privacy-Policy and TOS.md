@@ -1,6 +1,4 @@
-# Yuineko-Privacy-Policy
-
-# Yuineko-Privacy-Policy
+# Yuineko-Privacy-Polic
 
 ---
 
